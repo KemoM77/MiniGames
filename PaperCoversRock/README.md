@@ -5,5 +5,8 @@ https://people.inf.elte.hu/mhx132/PaperCoversRock/
 
 
 
-![image](https://user-images.githubusercontent.com/80693393/148690647-5e49d67e-4a29-4a53-b1ab-e81a31662202.png)
+![image](https://user-images.githubusercontent.com/80693393/148690697-96c874ae-479f-44c2-9484-dd5e15cfe353.png)
+
+
+
 
